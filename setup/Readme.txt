@@ -1,0 +1,1 @@
+Çalıştırın ve kurulumu yapın.
